@@ -1,0 +1,1 @@
+# syokugyo-bingo
